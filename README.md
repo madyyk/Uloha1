@@ -1,1 +1,6 @@
 # Uloha1
+
+
+
+zmena
+
